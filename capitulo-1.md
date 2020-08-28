@@ -10,7 +10,7 @@
 
 * * * *
 
-Cada centímetro de la pared está cubierto por una estantería. Cada estantería tiene seis baldas, que llegan casi hasta el techo. Algunas de las baldas rebosan libros de encuadernación recia: ciencias, matemáticas, historia y cualquier otra cosa. Otras baldas tienen dos filas de libros de ciencia ficción en tapa blanda, con los de atrás apoyados en cajas de pañuelos o pedazos de maera para que se puedan ver los títulos sobresaliendo por encima de la primera fila. Y aún así no es suficiente. Los libros se acumulan sobre las mesas y los sofás, y forman pequeñas pilas bajo las ventanas.
+Cada centímetro de la pared está cubierto por una estantería. Cada estantería tiene seis baldas, que llegan casi hasta el techo. Algunas de las baldas rebosan libros de encuadernación recia: ciencias, matemáticas, historia y cualquier otra cosa. Otras baldas tienen dos filas de libros de ciencia ficción en tapa blanda, con los de atrás apoyados en cajas de pañuelos o pedazos de madera para que se puedan ver los títulos sobresaliendo por encima de la primera fila. Y aún así no es suficiente. Los libros se acumulan sobre las mesas y los sofás, y forman pequeñas pilas bajo las ventanas.
 
 Esta es la sala de estar de la casa que ocupa el eminente profesor Michael Verres-Evans, y su esposa, la señora Petunia Evans-Verres, y su hijo adoptado, Harry James Potter-Evans-Verres.
 
@@ -18,19 +18,19 @@ Hay una carta encima de la mesa de la sala de estar, y un sobre sin matasellos d
 
 El profesor y su mujer están hablando entre ellos de forma agresiva, pero sin gritarse. El profesor consiera que gritar es de bárbaros.
 
---Estás de broma-- le dijo Michael a Petunia. Su tono indicaba que estaba precupado de que ella no lo estuviera.
+—Estás de broma— le dijo Michael a Petunia. Su tono indicaba que estaba precupado de que ella no lo estuviera.
 
---Mi hermana era una bruja-- repitió Petunia. Parecía asustada, pero aún así aguantó el tipo. --Su marido era un mago.
+—Mi hermana era una bruja— repitió Petunia. Parecía asustada, pero aún así aguantó el tipo. —Su marido era un mago.
 
---¡Esto es absurdo!-- dijo Michael de forma hostil. --Vinieron a nuestra boda, nos visitaban en Navidad...
+—¡Esto es absurdo!— dijo Michael de forma hostil. —Vinieron a nuestra boda, nos visitaban en Navidad...
 
---Les dije que no debías saberlo-- susurró Petunia. --Pero es cierto. He visto cosas que....
+—Les dije que no debías saberlo— susurró Petunia. —Pero es cierto. He visto cosas que....
 
 El profesor puso los ojos en blanco. “Querida, entiendo que no conoces como yo la literatura escéptica. Puede que no sepas lo fácil que es para un mago entrenado hacer que lo imposible parezca posible. ¿Recuerdas cuando enseñé a Harry a doblar cucharas? Si parecía que sabían siempre lo que estabas pensando, se llama lectura en frío y...”.
 
---No doblaban cucharas.
+—No doblaban cucharas.
 
---¿Entonces, qué?
+—¿Entonces, qué?
 
 Petunia bit her lip. “I can’t just tell you. You’ll think I’m—” She swallowed. “Listen. Michael. I wasn’t—always like this—” She gestured at herself, as though to indicate her lithe form. “Lily did this. Because I—because I *begged* her. For years, I begged her. Lily had *always* been prettier than me, and I’d… been mean to her, because of that, and then she got *magic,* can you imagine how I felt? And I *begged* her to use some of that magic on me so that I could be pretty too, even if I couldn’t have her magic, at least I could be pretty.”
 
