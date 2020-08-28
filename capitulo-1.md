@@ -1,4 +1,4 @@
-# Un día de muy pequeña probabilidad
+# Un día muy poco probable
 
 * * * *
 
@@ -10,17 +10,17 @@
 
 * * * *
 
-Cada centímetro de la pared está cubierto por una estantería. Cada estantería tiene seis baldas, que llegan casi hasta el techo. Algunas de las baldas rebosan libros de encuadernación recia: ciencias, matemáticas, historia y cualquier otra cosa. Otras baldas tienen dos filas de libros de ciencia ficción en tapa blanda, con los de atrás apoyados en cajas de pañuelos o pedazos de madera para que se puedan ver los títulos sobresaliendo por encima de la primera fila. Y aún así no es suficiente. Los libros se acumulan sobre las mesas y los sofás, y forman pequeñas pilas bajo las ventanas.
+Cada centímetro de la pared está cubierto por una estantería. Cada estantería tiene seis baldas, que llegan casi hasta el techo. Algunas de las baldas rebosan con libros de encuadernación recia: ciencias, matemáticas, historia y cualquier otra cosa. Otras baldas tienen dos filas de libros de ciencia ficción en tapa blanda, con los de atrás apoyados en cajas de pañuelos o pedazos de madera para que se puedan ver sus títulos sobresaliendo por encima de la primera fila. Y aún así no es suficiente. Los libros se acumulan sobre las mesas y los sofás, y forman pequeñas pilas bajo las ventanas.
 
-Esta es la sala de estar de la casa que ocupa el eminente profesor Michael Verres-Evans, y su esposa, la señora Petunia Evans-Verres, y su hijo adoptado, Harry James Potter-Evans-Verres.
+Esta es la sala de estar de la casa que ocupa el eminente profesor Michael Verres-Evans, y su esposa, la señora Petunia Evans-Verres, y su hijo adoptivo, Harry James Potter-Evans-Verres.
 
-Hay una carta encima de la mesa de la sala de estar, y un sobre sin matasellos de pergamino amarillento, dirigido al *Sr. H. Potter* en tinta verde esmeralda.
+Hay una carta encima de la mesa de la sala de estar, y un sobre de pergamino amarillento, sin matasellos, dirigido al *Sr. H. Potter* en tinta verde esmeralda.
 
 El profesor y su mujer están hablando entre ellos de forma agresiva, pero sin gritarse. El profesor consiera que gritar es de bárbaros.
 
-—Estás de broma— le dijo Michael a Petunia. Su tono indicaba que estaba precupado de que ella no lo estuviera.
+—Estás de broma— le dijo Michael a Petunia. Su tono indicaba que estaba precupado de que ella hablase en serio.
 
-—Mi hermana era una bruja— repitió Petunia. Parecía asustada, pero aún así aguantó el tipo. —Su marido era un mago.
+—Mi hermana era una bruja— repitió Petunia. Parecía asustada, pero aún así aguantaba el tipo. —Su marido era un mago.
 
 —¡Esto es absurdo!— dijo Michael de forma hostil. —Vinieron a nuestra boda, nos visitaban en Navidad...
 
@@ -32,15 +32,15 @@ El profesor puso los ojos en blanco. “Querida, entiendo que no conoces como yo
 
 —¿Entonces, qué?
 
-Petunia bit her lip. “I can’t just tell you. You’ll think I’m—” She swallowed. “Listen. Michael. I wasn’t—always like this—” She gestured at herself, as though to indicate her lithe form. “Lily did this. Because I—because I *begged* her. For years, I begged her. Lily had *always* been prettier than me, and I’d… been mean to her, because of that, and then she got *magic,* can you imagine how I felt? And I *begged* her to use some of that magic on me so that I could be pretty too, even if I couldn’t have her magic, at least I could be pretty.”
+Petunia se mordió el labio. —No puedo simplemente contártelo. Pensarías que estoy...— dijo tragando saliva. —Escucha, Michael. Yo no era...no he sido siempre así— dijo señalándose con un gesto, como indicando su cuerpo flexible. —Lily hizo esto. Porque yo...porque se lo *rogué*. Durante años, se lo rogué. Lily *siempre* fue más guapa que yo, y por eso yo era...desagradable con ella, y entonces descubrió que podía hacer *magia*, ¿puedes hacerte una idea de cómo me sentí? Y le *imploré* que usase algo de esa magia conmigo para que yo también pudiese ser hermosa, para que aunque no tuviese magia como ella, por lo menos pudiese ser hermosa.
 
-Tears were gathering in Petunia’s eyes.
+Las lágrimas se agolpaban en los ojos de Petunia.
 
-“And Lily would tell me no, and make up the most ridiculous excuses, like the world would end if she were nice to her sister, or a centaur told her not to—the most ridiculous things, and I hated her for it. And when I had just graduated from university, I was going out with this boy, Vernon Dursley, he was fat and he was the only boy who would talk to me. And he said he wanted children, and that his first son would be named Dudley. And I thought to myself, *what kind of parent names their child Dudley Dursley?* It was like I saw my whole future life stretching out in front of me, and I couldn’t stand it. And I wrote to my sister and told her that if she didn’t help me I’d rather just—”
+--Y Lily me decía que no, y se inventaba las excusas más ridículas que puedas imaginar (como que el mundo se acabaría si se portaba bien con su hermana, o que un centauro le había dicho que no lo hiciera), las más ridículas, y la odiaba por ello. Y justo cuando acababa de graduarme en la univerdidad, estaba saliendo con este chico, Vernon Dursley, que estaba gordo y era el único chico que me hablaba. Y decía que quería tener niños, y que su primer hijo se llamaría Dudley. Y yo pensaba: *¿Qué tipo de padre llama a su hijo Dudley Dursley?* Era como si viera todo mi futuro desplegándose delante de mis ojos, y no pude soportarlo. Y escribí a mi hermana y le dije que si no quería ayudarme, simplemente me...
 
-Petunia stopped.
+Petunia se detuvo.
 
-“Anyway,” Petunia said, her voice small, “she gave in. She told me it was dangerous, and I said I didn’t care any more, and I drank this potion and I was sick for weeks, but when I got better my skin cleared up and I finally filled out and… I was beautiful, people were *nice* to me,” her voice broke, “and after that I couldn’t hate my sister any more, especially when I learned what her magic brought her in the end—”
+--Sea como fuere-- dijo Petunia, con un hijo de voz, --por fin cedió. Me dijo que era peligroso, y le dije que ya no me importaba nada, y me dio a beber esta poción que me hizo enfermar durante semanas, pero cuando mejoré, mi piel se había suavizado, y gané peso, y...era guapa, la gente era *agradable* conmigo-- su voz se quebró --y después de aquello ya no pude odiar a mi hermana, sobre todo después de conocer lo que la magia le trajo cuando todo acabó...
 
 “Darling,” Michael said gently, “you got sick, you gained some weight while resting in bed, and your skin cleared up on its own. Or being sick made you change your diet—”
 
