@@ -36,11 +36,11 @@ Petunia se mordió el labio. —No puedo simplemente contártelo. Pensarías que
 
 Las lágrimas se agolpaban en los ojos de Petunia.
 
---Y Lily me decía que no, y se inventaba las excusas más ridículas que puedas imaginar (como que el mundo se acabaría si se portaba bien con su hermana, o que un centauro le había dicho que no lo hiciera), las más ridículas, y la odiaba por ello. Y justo cuando acababa de graduarme en la univerdidad, estaba saliendo con este chico, Vernon Dursley, que estaba gordo y era el único chico que me hablaba. Y decía que quería tener niños, y que su primer hijo se llamaría Dudley. Y yo pensaba: *¿Qué tipo de padre llama a su hijo Dudley Dursley?* Era como si viera todo mi futuro desplegándose delante de mis ojos, y no pude soportarlo. Y escribí a mi hermana y le dije que si no quería ayudarme, simplemente me...
+—Y Lily me decía que no, y se inventaba las excusas más ridículas que puedas imaginar (como que el mundo se acabaría si se portaba bien con su hermana, o que un centauro le había dicho que no lo hiciera), las más ridículas, y la odiaba por ello. Y justo cuando acababa de graduarme en la universidad, estaba saliendo con este chico, Vernon Dursley, que estaba gordo y era el único chico que me hablaba. Y decía que quería tener niños, y que su primer hijo se llamaría Dudley. Y yo pensaba: *¿Qué tipo de padre llama a su hijo Dudley Dursley?* Era como si viera todo mi futuro desplegándose delante de mis ojos, y no pude soportarlo. Y escribí a mi hermana y le dije que si no quería ayudarme, simplemente me...
 
 Petunia se detuvo.
 
---Sea como fuere-- dijo Petunia, con un hijo de voz, --por fin cedió. Me dijo que era peligroso, y le dije que ya no me importaba nada, y me dio a beber esta poción que me hizo enfermar durante semanas, pero cuando mejoré, mi piel se había suavizado, y gané peso, y...era guapa, la gente era *agradable* conmigo-- su voz se quebró --y después de aquello ya no pude odiar a mi hermana, sobre todo después de conocer lo que la magia le trajo cuando todo acabó...
+—Sea como fuere— dijo Petunia, con un hijo de voz, —por fin cedió. Me dijo que era peligroso, y le dije que ya no me importaba nada, y me dio a beber esta poción que me hizo enfermar durante semanas, pero cuando mejoré, mi piel se volvió suave, y gané peso, y...era guapa, la gente era *agradable* conmigo— su voz se quebró —y después de aquello ya no pude odiar a mi hermana, sobre todo después de conocer lo que la magia le trajo cuando todo acabó...
 
 “Darling,” Michael said gently, “you got sick, you gained some weight while resting in bed, and your skin cleared up on its own. Or being sick made you change your diet—”
 
