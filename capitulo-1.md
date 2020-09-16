@@ -32,7 +32,9 @@ El profesor puso los ojos en blanco. “Querida, entiendo que no conoces como yo
 
 —¿Entonces, qué?
 
-Petunia se mordió el labio. —No puedo simplemente contártelo. Pensarías que estoy...— dijo tragando saliva. —Escucha, Michael. Yo no era...no he sido siempre así— dijo señalándose con un gesto, como indicando su cuerpo flexible. —Lily hizo esto. Porque yo...porque se lo *rogué*. Durante años, se lo rogué. Lily *siempre* fue más guapa que yo, y por eso yo era...desagradable con ella, y entonces descubrió que podía hacer *magia*, ¿puedes hacerte una idea de cómo me sentí? Y le *imploré* que usase algo de esa magia conmigo para que yo también pudiese ser hermosa, para que aunque no tuviese magia como ella, por lo menos pudiese ser hermosa.
+Petunia se mordió el labio.
+
+—No puedo simplemente contártelo. Pensarías que estoy...— dijo tragando saliva. —Escucha, Michael. Yo no era...no he sido siempre así— dijo señalándose con un gesto, como indicando su cuerpo flexible. —Lily hizo esto. Porque yo...porque se lo *rogué*. Durante años, se lo rogué. Lily *siempre* fue más guapa que yo, y por eso yo era...desagradable con ella, y entonces descubrió que podía hacer *magia*, ¿puedes hacerte una idea de cómo me sentí? Y le *imploré* que usase algo de esa magia conmigo para que yo también pudiese ser hermosa, para que aunque no tuviese magia como ella, por lo menos pudiese ser hermosa.
 
 Las lágrimas se agolpaban en los ojos de Petunia.
 
